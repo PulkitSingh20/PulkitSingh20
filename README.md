@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PulkitSingh20
-- 👀 I’m interested in Sketching, Cooking, and some coding
+- 👀 Fun fact: I only code or game, with memes in between them
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on various projects, if got chances 
 - 📫 How to reach me #justmessage  
